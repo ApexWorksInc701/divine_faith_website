@@ -1,2 +1,2 @@
-# divine_faith_website
-This is the website of Divine Faith Charity Motherless Babies Foundation
+# rev_dr_emmanuel_saboro_website
+This is the website of Rev. Dr. Emmanuel Saboro
